@@ -29,6 +29,7 @@ Duración: consta de 2 etapas teóricas (15 días mínimo – máximo 90 días)
 
 Fecha de Inicio: INMEDIATA,en el tiempo que dure el curso, podes avanzar a tu ritmo, con total libertad para acceder a la Plataforma Online y a los contenidos del curso. Solo concurrirás a nuestra sede náutica a efectuar las clases prácticas abordo de nuestras embarcaciones.
 
+
 Valor: PROMOCION $ 12.800.- transferencia bancaria,  mercado pago  $ 14.900.-
 
 Examen:  mensualmente, ante un veedor de Prefectura Naval Argentina, en nuestra sede de San Fernando.
@@ -57,6 +58,11 @@ Valor: PROMOCION $ 19.800.- transferencia bancaria, mercado pago  $ 22.800.-
 Examen: mensualmente, ante un veedor de Prefectura Naval Argentina, en nuestra sede de San Fernando.
 
 
-![velero](https://youtu.be/T301cJhc2hE)
+[![velero](https://s1.eestatic.com/2016/08/30/corazon/estilo/moda/moda_151746423_15087946_1706x960.jpg)](https://youtu.be/T301cJhc2hE)
 
 [![Everything Is AWESOME](https://img.youtube.com/vi/StTqXEQ2l-Y/0.jpg)](https://www.youtube.com/watch?v=StTqXEQ2l-Y "Everything Is AWESOME")
+
+
+[![Everything Is AWESOME](http://i.imgur.com/Ot5DWAW.png)](https://youtu.be/StTqXEQ2l-Y?t=35s "Everything Is AWESOME")
+
+[![Little red riding hood](http://i.imgur.com/7YTMFQp.png)](https://vimeo.com/3514904 "Little red riding hood - Click to Watch!")
